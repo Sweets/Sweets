@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-:rose: I do stuff, I make things.
+:rose: Shards are the secret ingredient in the webscale sauce.
