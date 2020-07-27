@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-:rose: Shards are the secret ingredient in the webscale sauce.
+what are have a linux
