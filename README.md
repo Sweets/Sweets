@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-what are have a linux
+Rated M for "Man, he cusses a fuck ton."
