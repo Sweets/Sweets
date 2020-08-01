@@ -13,4 +13,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-Rated M for "Man, he cusses a fuck ton."
+If there is no God, I know the day I die I've lived through heaven.
+And that I gave it hell, and if it hurt oh well, that's just livin'.
